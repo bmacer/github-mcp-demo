@@ -1,1 +1,1 @@
-# github-mcp-demo
+My favorite fruit is a blueberry.
