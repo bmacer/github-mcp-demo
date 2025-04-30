@@ -1,1 +1,1 @@
-My favorite fruit is a blueberry.
+My favorite fruit is a strawberry.
